@@ -1,2 +1,1 @@
-# God
-Serving God pays 
+
